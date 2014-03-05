@@ -1,1 +1,1 @@
-Hello koding users
+Hello koding users. Welcome to our second google hangout. We're LIVE!! YAY!!!!.
